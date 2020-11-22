@@ -1,5 +1,9 @@
-# About
+### About murlocs
+![](murlok1.jpg)
+* They live in World of Warcraft and also appear in Hearthstone card game
+* One murloc won't hurt You. >10 of them will...
+* They do funny noises kek
 
-I dedicate this site to creatures called murlocs from WoW game. They also appear in Hearthstone card game based on WoW.
-
+![](murlok2.jpg)
+![](murlok3.jpg)
 
