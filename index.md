@@ -4,6 +4,6 @@
 * One murloc won't hurt You. >10 of them will...
 * They do funny noises kek
 
-![](murlok2.jpg)
+![](murlok2.png)
 ![](murlok3.jpg)
 
